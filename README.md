@@ -1,4 +1,4 @@
-## Hi there 👋
+ Hi there 👋. We are Inquisitvestrore an we supply an sell exclusive sneakers an clouths at affordable prices. 
 
 <!--
 **Iquistivestore/Iquistivestore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
